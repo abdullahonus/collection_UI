@@ -1,4 +1,4 @@
-For more follor from ig: @Countrol4Offical
+For more follow from ig: @Countrol4Offical
 
 mail:Countrolfour@gmail.com
 
